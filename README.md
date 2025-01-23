@@ -1,1 +1,1 @@
-# LogScience.github.io
+# About|Yi Liu Research Group
